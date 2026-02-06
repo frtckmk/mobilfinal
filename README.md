@@ -1,5 +1,5 @@
 YOUTUBE LİNKİ
-https://youtu.be/qQt3gihEg_g
+https://youtu.be/T20jAeslT94
 
 
 # mobilfinal
